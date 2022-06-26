@@ -1,1 +1,1 @@
-### [notebook url](https://notaspacecowboy.github.io/)
+[](https://notaspacecowboy.github.io/)
